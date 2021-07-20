@@ -44,6 +44,7 @@ Entre las más conocidas se pueden encontrar a :
 10. Tinder
 11. Netflix
 12. Airbnb
+
 Entre muchas otras!
 
 Algo que se puede ver en común es que todas estas aplicaciones son de uso masivo y con un gran respaldo económico.
